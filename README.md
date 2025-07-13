@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Backend development**
 
-- 💬 Ask me about **C,C++,JAVA,PYTHON,SQL,NUMPY,PANDAS,HTML,CSS,JAVASCRIPT**
+- 💬 Ask me about **C,C++,JAVA,PYTHON,SQL,NUMPY,PANDAS,HTML,CSS,JAVASCRIPT,REACT**
 
 - 📫 How to reach me **saikoushik.relangi@gmail.com**
 
