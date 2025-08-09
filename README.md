@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **saikoushik.relangi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1kyvyzJ7G3kSP9axnIhE0A-i2ekN_jQzU/view]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YxwxLlh6d3q5Cen-RYnbmu4bZ9hIYogp/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
